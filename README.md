@@ -1,0 +1,2 @@
+# fredomcity12
+fivem
